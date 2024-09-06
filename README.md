@@ -63,6 +63,41 @@ Tu obstaculo esta contenido en tus creencias negativas, que tienes acerca de tí
 La clave está en desafiar estas creencias y reemplazarlas con nuevas que mejoren tu vida.
 
 
+#### La verdad te hará libre.
 
+Gran parte de la infelicidad y la insatisfacción en tu mundo de hoy se basa en cosas que crees conocer pero que no necesariamente son ciertas. Cuando cambies tus creencias autolimitantes cambiarás tu vida.
+
+
+## Capitulo 1 
+
+### Por qué la gente se estanca.
+
+_Crecer significa cambiar y el cambio implica riesgo, ir de lo conocido a lo desconocido._
+
+**George Shinn**
+
+Para que puedas darte cuenta de la grandeza personal, necesitas comprender quien eres y cómo llegaste a donde estás hoy.
+
+#### No hay un manual de instrucciones para la vida ,¡así que crea el tuyo!
+
+Al igual que una computadora poderosa sin manual, llegamos de la misma manera a la vida cargada con talentos y habilidades sin explotar. Pero no tienes un manual de instrucciones, y tienes que resolverlo todo por ti mismo. Y esto generalmente lleva años, si no toda la vida.
+
+¿Te has preguntado cómo te convertiste en la persona que eres hoy  con tu combinación única de pensamientos, sentimientos, ideas, habilidades, miedos, esperanzas, ambiciones y aspiraciones?
+
+#### La magia de cambiar tu pensamiento.
+
+La gran mayoria de las personas va por la vida sin pensar quién es ni cómo llegó a donde está hoy.
+
+Toman el primer trabajo que les ofrecen. Se casan con la primera persona que está parada cerca, gasta su dinero en lo que alguien les sugiere.
+
+El hecho es que tu mundo se crea en gran medida por los pensamientos que tienes, y las cosas que haces.
+
+Cuando mejoras tu forma de pensar, mejoran tus acciónes y tus resultados. Cuando cambias tu forma de pensar, cambias tu vida.
+
+**Unas palabras de Christins**
+
+Un paciente estaba ansioso y deprimido, le dí ejercicios para la toma de decisiones y acciones que demostraban que él tenia el control de su vida
+
+### Las leyes mentales
 
 
