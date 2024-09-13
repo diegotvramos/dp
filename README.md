@@ -96,8 +96,71 @@ Cuando mejoras tu forma de pensar, mejoran tus acciónes y tus resultados. Cuand
 
 **Unas palabras de Christins**
 
-Un paciente estaba ansioso y deprimido, le dí ejercicios para la toma de decisiones y acciones que demostraban que él tenia el control de su vida
+Un paciente estaba ansioso y deprimido, le dí ejercicios para la toma de decisiones y acciones que demostraban que él tenia el control de su vida, y su vida cambió por completo.
 
 ### Las leyes mentales
 
+hay una serie de leyes y principios mentales.
 
+Napoleon Hill: "Uno de los grandes secretos de la vida es nunca intentar violar las leyes naturales y ganar"
+
+
+#### La ley de causa y efecto.
+
+Todo sucede por una razón. Solo por que no conozcamos la razón, eso no significa que una razón no exista.
+
+_La ley de causa y efecto_ dice que por cada efecto o resultado en tu vida hay una causa o causas.
+
+La manera más facil de tener éxito es encontrar a alguien que ya haya logrado lo que tú deseas lograr y luego hacer las mismas cosas que hizo esta persona, una y otra vez, hasta que obtengas los mismos resultados.
+
+> **Ejercicio:** anota los nombres de tres personas a las cuales admires, ya sea por quienes son o por lo que han logrado. ¿Qué cualidad admiras más de cada una? ¿Cómo puedes desarrollar estas cualidades?
+
+**Primera regla:**
+Si haces lo que las personas exitosas y felices hacen, una y otra vez no habrá nada que te inpida obtener los mismos resultados que ellas
+
+**La segunda regla:**
+Si no haces lo que hacen las personas exitosas y felices, nada podrá ayudarte.
+
+El mundo está lleno de personas que hacen lo que hacen las personas infelices, fracasadas y frustradas, y luego se sorprenden por obtener los mismos resultados. Pero esto no es cuestión de suerte. Es simplemente cuestión de ley.
+
+Si comes saludable, te ejercitas regularmente y cuidas bien de tu cuerpo, estarás en forma y saludable. Si no haces esto no estarás saludable. Es cuestion de causa y efecto.
+
+#### Tu pensamiento es creativo
+
+La aplicación más importante de la ley de causa y efecto: los pensamientos son causas y las condiciones son efectos.
+
+Una vez que has iniciado la causa el efecto tiene lugar po si mismo. Una vez que has empujado la roca colina abajo, rueda por si misma por la ley de la gravedad. Una vez que has plantado una semilla positiva o negativa en tu mente, las flores o las malas hierbas crecerán. Puedes controlar la causa, pero el efecto ocurre automáticamente, lo quieras o no.
+
+![alt text](image-1.png)
+
+
+#### Piensa en el éxito
+
+En un estudio solo el 10% de las personas (las más felices) pensaban _lo que querían y cómo obtenerlo_. pensaron en sus objetivos y lás acciones para alcanzarlos.
+
+>Ejercicio: elige algo que realmente quieras. Ahora imagina que ya lo has logrado. Describe cómo se siente haber alcanzado tu objetivo. ¿Cómo sería tu vida diferente si lograras algo que es importante para ti?
+
+Cuanto más las personas exitosas pensaban de lo que querían y como conseguirlo, más ideas e intuiciones les llegaba. Y estas ideas las motivaron a tomar aun más acciones. lo que las movió más y más rapido hacia sus objetivos.
+
+Pusieron su vida en una espiral ascendente de éxito y logro.
+
+#### El principio básico.
+
+te conviertes en lo que piensas la mayor parte del tiempo.
+
+Cuando tienes pensamientos claros y definidos sobre lo que quieres respaldados por la emoción positiva del entuciasmo, diriges tu energia y actividades hacia tus objetivos.
+
+Si tu mente es un revoltijo de pensamientos pensarás en lo que quieres en algunas ocaciones y en lo que no quieres en otras.
+
+Con el tiempo te comviertes en lo que piensas la mayor parte del tiempo para bien o para mal.
+
+#### La ley de la creencia.
+
+_La ley de la creencia_ dice que todo lo que creas con emoción se convierte en realidad. No ves al mundo como es,sino como eres.
+
+Si tienes creencias positivas y constructivas tomarás buenas decisiones y obtendras buenos resultados. Si tienes creencias negativas temorosas o enojadas tomarás las acciones incorrectas o ninguna acción, y obtendras resultados negativos.
+
+> Ejercicio: consigue un cuaderno y tráelo con go durante todo el día. Toma conciencia de cómo percibes las situaciones. Cuando te enfrentas a una decisión, ¿resaltas los aspectos posi vos o consideras losnegativos primero? Haz un seguimiento de estos patrones de pensamiento y realiza un esfuerzo consciente para ver las cosas de manera optmista. Luego haz un seguimiento de cómo te sientes en general sobre tu día. Asegúrate de anotar esto.
+
+
+#### Toda las creencias son aprendidas
