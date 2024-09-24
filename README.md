@@ -216,6 +216,53 @@ La emoción es la clave para entender esta ley. Tus emociones, positivas o negat
 
 > **Ejercicio:** imagina que vas a comprar un coche nuevo decide qué coche te gustaria tener y el color de tu elección. Durante los proximos días, observa la frecuencia con la que ves ese coche. Lo notarás en todas partes.
 
-##### La ley de la resonancia simpática
+**La ley de la resonancia simpática.**
+
+Tambien hay una subley: La _Ley de la resonancia simpática_.
+
+A menudo conocerás a una persona con la que tienes una resonancia simpática desde el primer momento. Kahlil Gibram escribió, el su libro _El Profeta_: "En el amor debe haber una comunicación instantánea en el primer momento de la cita, o nunca sucederá".
+
+Muchas personas se sienten atraidas por otras como imanes, sus ojos se encuentran en medio de una habitación llena de gente.
+
+**La Ley de la vibración.**
+
+Otra subley de la ley de la atracción es la _ley de la vibración_, dice que todo el universo es energía en movimiento, con cada sustancia vibrando en diferentes frecuencias. Tus pensamientos tambien vibran, en un nivel tan fino que tus hondas de pensamiento pueden viajar a través de cualquier sustancia, y en largas distancias, de forma instantánea.
+
+A lo largo de tu vida tendrás experiencias como ésta: estás hablando de un amigo que vive en otro país, alguien que no hasvisto en años. En medio de tu conversación, el teléfono suena y resulta que es tu amigo. Y le dices, con sorpresa: “¡Estábamos hablando de ti!”.
+
+#### LA LEY DE LA REPULSIÓN
+
+lo opuesto a la ley de la atracción es _la ley de la repulsión_. Cuando tienes pensamientos negativos y aprehensivos sobre el dinero, sobre lo poco que tienes y cuánto cuesta todo, creas un campo de energía de fuerza negativa que aleja el dinero, y las oportunidades de tu vida.
+
+Lo peor que puedes hacer si quieres tener éxito financiero es criticar a otras personas que lo están haciendo bien o que están ganando más que tú. Este comportamiento se basa en la envidia y el resentimiento, dos de las peores emociones negativas. Elimina todas las esperanzas de éxito en tu vida.
+
+![alt text](image-3.png)
+
+
+#### LA LEY DE CORRESPONDENCIA
+
+Mi ley favorita es _La ley de correspondencia_ que dice: tu mundo exterior es un reflejo de tu mundo interior.
+
+Es por eso que la biblia dice: "Como es adentro, es afuera".
+
+Napoleon Hill escribió que para ser financieramente independiente debes desarrollar una "conciencia de prosperidad".
+
+Una ves que tengas esta conciencia, comenzarás a ver todo tipo de oportunidades, conocerás nuevas personas, leeras libros o artículos relevantes y tendras grandes ideas.
+
+Desafortunadamente la mayoria tiene una _conciencia de pobreza_. Se preucupa por cuanto cuesta todo y piensa que cuesta demaciado. Es cautelosa con su dinero. A menudo, debido al condicionamiento de la infancia, su actitud es: "¡No me lo puedo permitir!"
+
+#### Buenos reflejos
+
+Segun la _ley de correspondencia_, tu mundo exterior de relaciones será un reflejo de cómo te sientes por dentro. Cuanto más te gustes y te respetes, más te gustarán y respetarás a los demás. Cuanto más te gusten y respetes a los demás, más les gustarás y mejores serán tus relaciones en todas las areas de tu vida.
+
+Tu mundo exterior de salud será un reflejo de tu mundo interior de actitudes hacia la dieta, el ejercicio, y el bienestar personal. Si te visualizas en forma, delgado y saludable por dentro, pronto serás una persona en forma, delgada y saludable en el exterior.
+
+Tu mundo exterior de éxito será un reflejo de tu preparación interna y tu capacidad de utilizar tu conocimiento y tus habilidades
+
+Debido a estas leyes, cuando cambias tu forma de pensar, cambias tu vida. Y no hay otra manera.
+
+Las personas infelices están convencidad de que pueden cambiar los aspectos externos de su vida, sin cambiar las actitudes mentales internas. Esto es Imposible.
+
+#### El descubrimiento del auto concepto
 
 
