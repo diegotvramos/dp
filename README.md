@@ -265,4 +265,24 @@ Las personas infelices están convencidad de que pueden cambiar los aspectos ext
 
 #### El descubrimiento del auto concepto
 
+Es el mayor avance en la comprención y el desbloqueo del potencial humano.
+
+Cada persona comienza sin pensamientos, creencias y opiniones. Todo lo que sabes acerca de ti ha sido enseñado desde la infacia en adelante.
+
+#### El recien nacido
+
+El niño viene al mundo completamente indefenso.
+
+La visión del mundo del niño, segura o insegura está determinada por la forma en que se trata en los primeros tres a cinco años de vida.
+
+Cuando los padres le dan al niño amor, calidez, aprobación, desarrolla la creencia de que vive en un mundo seguro.
+
+#### Sé espontáneo y desinhibido
+
+Los niños llegan al mundo con dos características comunes: son desinhibidos y espontáneos. 
+
+Debido a que son espontaneos no les preucupa lo que otros piensen acerca de ellos. Hacen o dicen lo que piensan.
+
+Es tu derecho natural: ser espontaneo y desinhibido cuando se trata de ti y de tus sueños. Cuando bebes una o dos copas de vino, regresas a tu estado natural, no te preucupa lo que las personas piensen, sientan o por como reaccionarán.
+
 
