@@ -285,4 +285,29 @@ Debido a que son espontaneos no les preucupa lo que otros piensen acerca de ello
 
 Es tu derecho natural: ser espontaneo y desinhibido cuando se trata de ti y de tus sueños. Cuando bebes una o dos copas de vino, regresas a tu estado natural, no te preucupa lo que las personas piensen, sientan o por como reaccionarán.
 
+#### Los principales dos patrones de hábitos negativos
+
+En psicologiá hay dos patrones de hábitos negativos principales: el patrón de hábito negativo inhibidor y el patrón de hábito negativo compulsivo. Los llamamos _miedo al fracaso_ y _miedo al rechazo._ son los dos principales obstáculos para el éxito.
+
+El primero de ellos, el miedo al fracaso se aprende cuando se le grita o se castiga fisicamente al niño por intentar o probar cosas nuevas.
+
+#### "NO PUEDO HACERLO"
+
+Esto pronto crea en el niño el miedo al fracaso, que se expresa en el pensamiento y en el sentimiento de "¡No puedo!". ese miedo al fracaso puede continuar en toda la vida adulta. Cada vez que el adulto se enfrenta a una nueva oportunidad para probar algo nuevo, la reacción automática en el plexo solar, será. "¡No Puedo!".
+
+Por el resto de la vida de la persona, el miedo al fracaso tendrá una influencia para determinar lo que hace, a dónde vá, los trabajos que elige el círculo social, la forma en que cría a sus hijos y trata a su cónyugue y cualquier otro factor de su vida.
+
+La idea de "¡No Puedo!" es una hierba que necesita ser arrancada de nuestro jardir mental. Ese patron de pensamiento se ha convertido en un hábito, y los hábitos se pueden cambiar. 😊
+
+#### EL MIEDO AL RECHAZO
+
+El segundo bloqueo es el patrón compulsivo de hábito negativo, el miedo al rechazo o a la crítica. Este patron de hábito se aprende cuando el niño el víctima del amor condicional.
+
+Papá y mamá le dá y le quita el amor para que el niño haga lo que ellos quieran que hagan, esto crea una dependencia del amor de sus padres por su sensación de seguridad.
+
+Esto se expresa en el pensamiento: "¡Tengo que hacerlo! Tengo que hacer lo que mamá y papá quieren. Tengo que hacer lo que ellos quieren que haga".
+
+#### EL PATRÓN CONTINÚA
+
+
 
