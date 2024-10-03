@@ -310,4 +310,31 @@ Esto se expresa en el pensamiento: "¡Tengo que hacerlo! Tengo que hacer lo que 
 #### EL PATRÓN CONTINÚA
 
 
+Cuando el niño crece, el patrón de hábito negativo inhibitorio, hace que se vuelva hipersensible a las opiniones de los demás. 
+
+En casos extremos, el adulto no puede tomar una decición; siempre tienen que obtener la aprobación de alguien, o de varias personas, antes de que puedan comprar una prenda de vestir o un coche nuevo.
+
+Se siente muy incómodo ante la sola idea de tomar una decisión en la que alguien más lo desapruebe o lo critique.
+
+El patrón de hábito negativo compulsivo se siente en forma de estres
+
+> En una relacion si no hay autenticidad se puede derumbar, por que esa persona insegura intenta ser lo que cree que la otra persona queria que fuera.
+
+> Para establecer una conexion auténtica con otra persona nesesita tener una relación con ella misma
+
+#### Deficiencia de amor
+
+Un niño que ha experimentado dificiencia de calcio en la infacia puede ser reconocido en la edad adulta por sus piernas arqueadas. Pero cuando un niño que ha sido criada con deficiencia de amor lo puedes reconocer cuando interactuas  con personas infelices, frustradas, enojadas o deshonestas.
+
+Todo lo problemas de los adultos se remontan a la _retención_ o a la _falta_ de amor en la infacia, y cuando le agregas crítica destructiva, produce un adulto que tiene: el habito inhibidor y el compulsivo que va por la vida diciendo: "No puedo, pero tengo que hacerlo" o "tengo que hacerlo pero no puedo"
+
+Prácticamente todas las emociones negativas que hacen que una persona no avance  en la edad adulta son platadas como semillas por la crítica o la negligencia de los padres en los primeros años de vida.
+
+Cuando ves a un adulto disfuncional, ves los resultados de una infancia disfuncional. 
+
+![alt text](image-4.png)
+
+#### Cambiando tu autoconcepto
+
+
 
