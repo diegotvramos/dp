@@ -336,5 +336,50 @@ Cuando ves a un adulto disfuncional, ves los resultados de una infancia disfunci
 
 #### Cambiando tu autoconcepto
 
+¿como corriges las emociones negativas en tu mente subconciente?
+
+pues cambianto tu autoconcepto que se compone del paquete de creencias de otros que has asimilado acerca de ti.
+
+Siempre actuaras en el exterior de acuerdo con lo que crees sobre tí en el interior.
+
+tu autoconcepto se compone de tres partes: tu yo ideal, tu autoimagen y tu autoestima.
+
+#### TU YO IDEAL
+
+Tu yo ideal está compuesto de los valores, virtudes y cualidades que más admiras en ti y en otras personas.
+
+Es un compuesto de la persona que te gustaría ser en el futuro. 
+
+Cuantas más cosas quieras ser, hacer y tener en tu vida, más poderosa será la influencia que tu yo ideal tendrá en tu comportamiento.
+
+Las personas exitosas tienen muy claro sus ideales. Establecen la integridad como el principio organizador de su vida.
+
+Las personas inflices y fracasadas tiene un yo ideal poco claro o inexistente, compromenteran sus valores y principios con la más minima ventaja o beneficio. Ellos nunca son felices
+
+#### Ten claro tus valores
+
+Elegimos los valores más importantes para nosotros
+
+Una vez que las personas tienen claro sus valores y su yo ideal toda su vida comienza a cambiar
+
+Una persona con ideales claros comienza a atraer a su vida a más personas y más recursos que estén en armonia con el ideal de la mejor persona que puede ser.
+
+#### TU AUTOIMAGEN
+
+La segunda parte de tu autoconcepto es tu autoimagen "espejo interior"
+
+Las personas felices tienen autoimágenes positivas.
+
+En la psicologia de la autoimagen se dice: "La persona que ves es la persona que serás"
+
+Puedes cambiar tu autoimagen alimentando tu mente con imágenes positivas de la persona que te gustaría ser, actuando de la manera que te gustaría actuar
+
+en 1950 muchas personas aprendieron que cuando se visualizaban a sí mismas lo mejor que podian, su mente subconciente alteraba el lenguaje corporal, el tono de voz y la personalidad para ser coherentes con la nueva imagen  mental.
+
+Cuando tienes tu yo ideal claro, es más facil mejorar continuamente tus pensamientos, tus conductas y tus actividades
+
+![alt text](image-5.png)
+
+#### TU AUTOESTIMA
 
 
