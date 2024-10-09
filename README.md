@@ -382,4 +382,46 @@ Cuando tienes tu yo ideal claro, es más facil mejorar continuamente tus pensami
 
 #### TU AUTOESTIMA
 
+La tercera parte y la más importante de tu autoconcepto es tu autoestima. Es la base de tu personalidad. Es el "núcleo del reactor" de tu generador de tu energía emocional.
 
+La mejor definicion es: cuánto te gustas (cuanto te quieres). Cuanto más te gustes, mejor estarás en cada parte de tu vida. Cuanto más te gustes más te gustarán los demás. Cuanto más te gusten los demás, más les gustarás y más querran comprarte, estar asociados contigo, estar casados contigo y tenerte como amigo.
+
+A lo largo de tu vida encontrarás que las personas con la mayor autoestima tienen las personalidades más positivas y son las más populares donde quiera que vayan. Parece haber una relación directa entre la autoestima, el éxito y la felicidad en cada área de la vida.
+![alt text](image-6.png)
+
+#### Tiempo de reaccíon rápido
+
+Así como te conviertes en lo que piensas, también te conviertes en lo que dices la mayor parte del tiempo. La mayoria de tus emociones está determinada por la forma en que hablas contigo a lo largo del día.
+
+Cuando hablas contigo de una manera fuerte y positiva estos comandos son aceptados por tu mente subconciente y de inmediato influye en tus pensamientos, sentimientos y tu comportamiento.
+
+Las palabras más poderosas que puedes usar para desarrollar tu autoestima son: "¡Me gusto a mí mismo!" 
+
+Cada vez que dices: "¡Me gusto!", tu autoestima se incrementa a la par tu automimagen y tu personalidad entra en equilibrio, comienzas a evolucionar y a crecer de una manera positiva
+
+#### Toma el control de tu evolución como persona
+
+No importa qué te haya paso en la primera infancia para disminuir tu autoestima o dañar tu autoimagen, como adulto puedes tomar el control completo de la evolución de tu propia personalidad
+
+Comienza hoy repitiendo las palabras mágicas "Me gusto" una y otra vez 10, 20, 30, 50 veces al día.
+
+Si te sientes infeliz, preucupado, angustiado, puedes cancelar las emociones negativas repitiendo: "¡Me gusto!"
+
+Cuanto más te gustes más feliz y más seguro te volverás. Cuanto más te gustes, más optimista y alegre serás. Cuanto más te gustes, más cambiará tu vida para mejorar.
+
+>  _**Ejercicio:** escribe una lista de las tres cualidades que más te gustan de ti. Por ejemplo: ¿por qué eres una buena persona? ¿Cuáles son tus mejores cualidades? ¿Qué te hace ser un valioso amigo, cónyuge o padre? Siempre que pienses en estas cualidades, puedes mirarte en el espejo y decir con convicción: “¡Me gusto!”._
+
+
+## Capítulo 2
+
+### Qué te detiene
+
+_Las cosas más grandiosas --grandes pensamientos, descubrimentos, inventos--, generalmente han sido nutridas en la privación , a menudo ponderadas por la tristesa, y finalmente establecidas como dificultad._ SAMUEL SMILES
+
+Cada niño llega al mundo con un potencial puro.
+
+La gente de hoy puede vivir más tiempo gracias al avance de la medicina y tecnologia.
+
+Los niños nacen optimistas, completos, intrépidos y deshinibidos, curiosos y deseosos ¿Alguna vez has visto un bebé negativo?
+
+### Errores que cometen los padres
