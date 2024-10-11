@@ -13,7 +13,7 @@ _Elimina tus dudas, cambia tus creencias y suelta el pasado para alcanzar todo t
 
 ### Introducción 
 
-#### Adopta una mentalidad triunfadora
+### Adopta una mentalidad triunfadora
 
 >"Los problemas son el denominador común de la vida. Son el gran ecualizador."
 **ANN LANDERS**
@@ -22,7 +22,7 @@ Tu estado natural es ser feliz, saludable, alegre y lleno de emoción por estar 
 
 Si, por alguna razón, no te sientes o piensas de esta manera la mayor parte del tiempo, puede significar que algo no está bien con tu manera de pensar, sentir o reaccionar ante la vida. Tu objetivo principal es organizar tu vida de tal manera que te sientas feliz, gozoso y satisfecho la mayor parte del tiempo; elimines los pensamientos, las creencias, las ideas negativas o pesimistas que te detienen, y adoptes una mentalidad positiva de triunfador.
 
-#### Eres una obra maestra.
+### Eres una obra maestra.
 
 Miguel Ángel vio la al El David en la pieza de marmol desde el principio y su unico trabajo fue remover todo lo que no era El David.
 
@@ -30,25 +30,25 @@ En el mismo sentido eres como El David atrapado en el marmol.
 
 El gran objetivo de tu vida es remover todos esos miedos, dudas, inseguridades, emociones negativas y falsas creencias que te detienen. Tu trabajo es aprender lo que necesitas para vivir una vida larga y feliz.
 
-#### Evita una vida de "desesperación silenciosa"
+### Evita una vida de "desesperación silenciosa"
 
 Muchas personas todavia son negativas, inseguras, enojonas. Tienen bloqueos mentales, todos arraigados en experiencias previas.
 
 Las emociones negativas inpides que alcances tu máximo potencial.
 
-#### Comienza con poco.
+### Comienza con poco.
 
 Es la historia de Brian. Él compró el coche de sus sueños y para comprarlo negoció su coche viejo como pago inicial, y el resto lo pagó en mensualidades por 5 años.
 
 Al pisar el acelerador se movio muy rapido.
 
-#### El poder de un pequeño cambio.
+### El poder de un pequeño cambio.
 
 Brian llevó su coche al mecánico, y este le dijo que habia encontrado un problema en el carburador, una pieza clabe estaba insertada al revés, lo cual reducia la cantidad de combustible que entraba al motor, Hans remplazó esa pieza con otra nueva. y notó la diferencia al momento de tocar el acelerador, era realmente más rapido de lo que el estaba acostumbrado.
 
 Este pequeño cambio de la valvula mejoró el rendimiento.
 
-#### Una idea puede detenerte.
+### Una idea puede detenerte.
 
 Imagina que comprar un coche lujoso, pero de alguna manera se instaló incorectamente los frenos de una llanta delantera. ¿Qué pasaria si tratas de mover el coche? pues este giraria en circulos.
 
@@ -63,7 +63,7 @@ Tu obstaculo esta contenido en tus creencias negativas, que tienes acerca de tí
 La clave está en desafiar estas creencias y reemplazarlas con nuevas que mejoren tu vida.
 
 
-#### La verdad te hará libre.
+### La verdad te hará libre.
 
 Gran parte de la infelicidad y la insatisfacción en tu mundo de hoy se basa en cosas que crees conocer pero que no necesariamente son ciertas. Cuando cambies tus creencias autolimitantes cambiarás tu vida.
 
@@ -78,13 +78,13 @@ _Crecer significa cambiar y el cambio implica riesgo, ir de lo conocido a lo des
 
 Para que puedas darte cuenta de la grandeza personal, necesitas comprender quien eres y cómo llegaste a donde estás hoy.
 
-#### No hay un manual de instrucciones para la vida ,¡así que crea el tuyo!
+### No hay un manual de instrucciones para la vida ,¡así que crea el tuyo!
 
 Al igual que una computadora poderosa sin manual, llegamos de la misma manera a la vida cargada con talentos y habilidades sin explotar. Pero no tienes un manual de instrucciones, y tienes que resolverlo todo por ti mismo. Y esto generalmente lleva años, si no toda la vida.
 
 ¿Te has preguntado cómo te convertiste en la persona que eres hoy  con tu combinación única de pensamientos, sentimientos, ideas, habilidades, miedos, esperanzas, ambiciones y aspiraciones?
 
-#### La magia de cambiar tu pensamiento.
+### La magia de cambiar tu pensamiento.
 
 La gran mayoria de las personas va por la vida sin pensar quién es ni cómo llegó a donde está hoy.
 
@@ -105,7 +105,7 @@ hay una serie de leyes y principios mentales.
 Napoleon Hill: "Uno de los grandes secretos de la vida es nunca intentar violar las leyes naturales y ganar"
 
 
-#### LA LEY DE CAUSA Y EFECTO
+### LA LEY DE CAUSA Y EFECTO
 
 Todo sucede por una razón. Solo por que no conozcamos la razón, eso no significa que una razón no exista.
 
@@ -125,7 +125,7 @@ El mundo está lleno de personas que hacen lo que hacen las personas infelices, 
 
 Si comes saludable, te ejercitas regularmente y cuidas bien de tu cuerpo, estarás en forma y saludable. Si no haces esto no estarás saludable. Es cuestion de causa y efecto.
 
-#### Tu pensamiento es creativo
+### Tu pensamiento es creativo
 
 La aplicación más importante de la ley de causa y efecto: los pensamientos son causas y las condiciones son efectos.
 
@@ -134,7 +134,7 @@ Una vez que has iniciado la causa el efecto tiene lugar po si mismo. Una vez que
 ![alt text](image-1.png)
 
 
-#### Piensa en el éxito
+### Piensa en el éxito
 
 En un estudio solo el 10% de las personas (las más felices) pensaban _lo que querían y cómo obtenerlo_. pensaron en sus objetivos y lás acciones para alcanzarlos.
 
@@ -144,7 +144,7 @@ Cuanto más las personas exitosas pensaban de lo que querían y como conseguirlo
 
 Pusieron su vida en una espiral ascendente de éxito y logro.
 
-#### El principio básico.
+### El principio básico.
 
 te conviertes en lo que piensas la mayor parte del tiempo.
 
@@ -154,7 +154,7 @@ Si tu mente es un revoltijo de pensamientos pensarás en lo que quieres en algun
 
 Con el tiempo te comviertes en lo que piensas la mayor parte del tiempo para bien o para mal.
 
-#### LA LEY DE LA CREENCIA
+### LA LEY DE LA CREENCIA
 
 _La ley de la creencia_ dice que todo lo que creas con emoción se convierte en realidad. No ves al mundo como es,sino como eres.
 
@@ -163,7 +163,7 @@ Si tienes creencias positivas y constructivas tomarás buenas decisiones y obten
 > Ejercicio: consigue un cuaderno y tráelo con go durante todo el día. Toma conciencia de cómo percibes las situaciones. Cuando te enfrentas a una decisión, ¿resaltas los aspectos posi vos o consideras losnegativos primero? Haz un seguimiento de estos patrones de pensamiento y realiza un esfuerzo consciente para ver las cosas de manera optmista. Luego haz un seguimiento de cómo te sientes en general sobre tu día. Asegúrate de anotar esto.
 
 
-#### Toda las creencias son aprendidas
+### Toda las creencias son aprendidas
 
 Afortunadamente toda las creencias son aprendidas. Si tienes creencias positivas que afirmen la vida, tendras una vida feliz y saludable. Serás popular y te llevaras bien con otras personas.
 
@@ -183,7 +183,7 @@ Ser capaz de identificar cuando te sientes inseguro y conscientemente cambiar a 
 
 > **Ejercicio:** ¿Cuáles son las tres cosas que quieres hacer pero que piensas que no puedes hacer? ¿Por qué no puedes hacerlas? ¿Quién te dice que no puedes hacer esas cosas? ¿Quién cree que puedes? ¿Alguna vez has intentado hacer estas cosas, o simplemente estás asumiendo que no puedes hacerlas?
 
-#### LA LEY DE LAS EXPECTATIVAS
+### LA LEY DE LAS EXPECTATIVAS
 
 _La ley de las expectativas_ dice: todo lo que esperas con confianza, se convierte en tu propia profecía autocumplida.
 
@@ -194,13 +194,13 @@ Tal vez la mejor actitud que puedes desarrollar es la de una expectativa positiv
 
 La mayoria de las personas infelices tienen una actitud de expectativa negativa. Esperan ser decepcionadas, engañadas, o sobrecargadas. Esperan ser impopulares o poco queridas. Y sus expectativas también se hacen realidad.
 
-#### Puedes decidir
+### Puedes decidir
 
 Lo único que puedes controlar en el mundo es tu forma de pensar.
 
 Tus expectativas están en gran medida formadas por tus creencias. Si crees que eres buena persona, esperarás ser tratado de manera positiva. Y las personas responderán consciente o inconscientemente a tus expectativas, ya sea que las conozcan o no.
 
-#### LA LEY DE LA ATRACCIÓN
+### LA LEY DE LA ATRACCIÓN
 
 Algunas personas piensan que por _la ley de la atracción_ lo que sea que quieran inevitablemente se verá atraido hacia su vida.
 
@@ -210,7 +210,7 @@ La emoción es la clave para entender esta ley. Tus emociones, positivas o negat
 
 ![alt text](image-2.png)
 
-#### La ley de la atracción en acción
+### La ley de la atracción en acción
 
 ¿Qué significa? cuando tienes claro lo que quieres, estableces un campo de energía de fuerza que lo atrae hacia ti y te atrae hacia eso. El componenete esencial para que funcione esta ley es la creencia o la fé. La menor duda o la negatividad con respecto a lo que quieras saboteará el proceso de atraerlo a tu vida.
 
@@ -230,16 +230,16 @@ Otra subley de la ley de la atracción es la _ley de la vibración_, dice que to
 
 A lo largo de tu vida tendrás experiencias como ésta: estás hablando de un amigo que vive en otro país, alguien que no hasvisto en años. En medio de tu conversación, el teléfono suena y resulta que es tu amigo. Y le dices, con sorpresa: “¡Estábamos hablando de ti!”.
 
-#### LA LEY DE LA REPULSIÓN
+### LA LEY DE LA REPULSIÓN
 
 lo opuesto a la ley de la atracción es _la ley de la repulsión_. Cuando tienes pensamientos negativos y aprehensivos sobre el dinero, sobre lo poco que tienes y cuánto cuesta todo, creas un campo de energía de fuerza negativa que aleja el dinero, y las oportunidades de tu vida.
 
 Lo peor que puedes hacer si quieres tener éxito financiero es criticar a otras personas que lo están haciendo bien o que están ganando más que tú. Este comportamiento se basa en la envidia y el resentimiento, dos de las peores emociones negativas. Elimina todas las esperanzas de éxito en tu vida.
 
-![alt text](image-3.png)
 
+![alt text](image-9.png)
 
-#### LA LEY DE CORRESPONDENCIA
+### LA LEY DE CORRESPONDENCIA
 
 Mi ley favorita es _La ley de correspondencia_ que dice: tu mundo exterior es un reflejo de tu mundo interior.
 
@@ -251,7 +251,7 @@ Una ves que tengas esta conciencia, comenzarás a ver todo tipo de oportunidades
 
 Desafortunadamente la mayoria tiene una _conciencia de pobreza_. Se preucupa por cuanto cuesta todo y piensa que cuesta demaciado. Es cautelosa con su dinero. A menudo, debido al condicionamiento de la infancia, su actitud es: "¡No me lo puedo permitir!"
 
-#### Buenos reflejos
+### Buenos reflejos
 
 Segun la _ley de correspondencia_, tu mundo exterior de relaciones será un reflejo de cómo te sientes por dentro. Cuanto más te gustes y te respetes, más te gustarán y respetarás a los demás. Cuanto más te gusten y respetes a los demás, más les gustarás y mejores serán tus relaciones en todas las areas de tu vida.
 
@@ -263,13 +263,13 @@ Debido a estas leyes, cuando cambias tu forma de pensar, cambias tu vida. Y no h
 
 Las personas infelices están convencidad de que pueden cambiar los aspectos externos de su vida, sin cambiar las actitudes mentales internas. Esto es Imposible.
 
-#### El descubrimiento del auto concepto
+### El descubrimiento del auto concepto
 
 Es el mayor avance en la comprención y el desbloqueo del potencial humano.
 
 Cada persona comienza sin pensamientos, creencias y opiniones. Todo lo que sabes acerca de ti ha sido enseñado desde la infacia en adelante.
 
-#### El recien nacido
+### El recien nacido
 
 El niño viene al mundo completamente indefenso.
 
@@ -277,7 +277,7 @@ La visión del mundo del niño, segura o insegura está determinada por la forma
 
 Cuando los padres le dan al niño amor, calidez, aprobación, desarrolla la creencia de que vive en un mundo seguro.
 
-#### Sé espontáneo y desinhibido
+### Sé espontáneo y desinhibido
 
 Los niños llegan al mundo con dos características comunes: son desinhibidos y espontáneos. 
 
@@ -285,13 +285,13 @@ Debido a que son espontaneos no les preucupa lo que otros piensen acerca de ello
 
 Es tu derecho natural: ser espontaneo y desinhibido cuando se trata de ti y de tus sueños. Cuando bebes una o dos copas de vino, regresas a tu estado natural, no te preucupa lo que las personas piensen, sientan o por como reaccionarán.
 
-#### Los principales dos patrones de hábitos negativos
+### Los principales dos patrones de hábitos negativos
 
 En psicologiá hay dos patrones de hábitos negativos principales: el patrón de hábito negativo inhibidor y el patrón de hábito negativo compulsivo. Los llamamos _miedo al fracaso_ y _miedo al rechazo._ son los dos principales obstáculos para el éxito.
 
 El primero de ellos, el miedo al fracaso se aprende cuando se le grita o se castiga fisicamente al niño por intentar o probar cosas nuevas.
 
-#### "NO PUEDO HACERLO"
+### "NO PUEDO HACERLO"
 
 Esto pronto crea en el niño el miedo al fracaso, que se expresa en el pensamiento y en el sentimiento de "¡No puedo!". ese miedo al fracaso puede continuar en toda la vida adulta. Cada vez que el adulto se enfrenta a una nueva oportunidad para probar algo nuevo, la reacción automática en el plexo solar, será. "¡No Puedo!".
 
@@ -299,7 +299,7 @@ Por el resto de la vida de la persona, el miedo al fracaso tendrá una influenci
 
 La idea de "¡No Puedo!" es una hierba que necesita ser arrancada de nuestro jardir mental. Ese patron de pensamiento se ha convertido en un hábito, y los hábitos se pueden cambiar. 😊
 
-#### EL MIEDO AL RECHAZO
+### EL MIEDO AL RECHAZO
 
 El segundo bloqueo es el patrón compulsivo de hábito negativo, el miedo al rechazo o a la crítica. Este patron de hábito se aprende cuando el niño el víctima del amor condicional.
 
@@ -307,7 +307,7 @@ Papá y mamá le dá y le quita el amor para que el niño haga lo que ellos quie
 
 Esto se expresa en el pensamiento: "¡Tengo que hacerlo! Tengo que hacer lo que mamá y papá quieren. Tengo que hacer lo que ellos quieren que haga".
 
-#### EL PATRÓN CONTINÚA
+### EL PATRÓN CONTINÚA
 
 
 Cuando el niño crece, el patrón de hábito negativo inhibitorio, hace que se vuelva hipersensible a las opiniones de los demás. 
@@ -322,7 +322,7 @@ El patrón de hábito negativo compulsivo se siente en forma de estres
 
 > Para establecer una conexion auténtica con otra persona nesesita tener una relación con ella misma
 
-#### Deficiencia de amor
+### Deficiencia de amor
 
 Un niño que ha experimentado dificiencia de calcio en la infacia puede ser reconocido en la edad adulta por sus piernas arqueadas. Pero cuando un niño que ha sido criada con deficiencia de amor lo puedes reconocer cuando interactuas  con personas infelices, frustradas, enojadas o deshonestas.
 
@@ -334,7 +334,7 @@ Cuando ves a un adulto disfuncional, ves los resultados de una infancia disfunci
 
 ![alt text](image-4.png)
 
-#### Cambiando tu autoconcepto
+### Cambiando tu autoconcepto
 
 ¿como corriges las emociones negativas en tu mente subconciente?
 
@@ -344,7 +344,7 @@ Siempre actuaras en el exterior de acuerdo con lo que crees sobre tí en el inte
 
 tu autoconcepto se compone de tres partes: tu yo ideal, tu autoimagen y tu autoestima.
 
-#### TU YO IDEAL
+### TU YO IDEAL
 
 Tu yo ideal está compuesto de los valores, virtudes y cualidades que más admiras en ti y en otras personas.
 
@@ -356,7 +356,7 @@ Las personas exitosas tienen muy claro sus ideales. Establecen la integridad com
 
 Las personas inflices y fracasadas tiene un yo ideal poco claro o inexistente, compromenteran sus valores y principios con la más minima ventaja o beneficio. Ellos nunca son felices
 
-#### Ten claro tus valores
+### Ten claro tus valores
 
 Elegimos los valores más importantes para nosotros
 
@@ -364,7 +364,7 @@ Una vez que las personas tienen claro sus valores y su yo ideal toda su vida com
 
 Una persona con ideales claros comienza a atraer a su vida a más personas y más recursos que estén en armonia con el ideal de la mejor persona que puede ser.
 
-#### TU AUTOIMAGEN
+### TU AUTOIMAGEN
 
 La segunda parte de tu autoconcepto es tu autoimagen "espejo interior"
 
@@ -380,7 +380,7 @@ Cuando tienes tu yo ideal claro, es más facil mejorar continuamente tus pensami
 
 ![alt text](image-5.png)
 
-#### TU AUTOESTIMA
+### TU AUTOESTIMA
 
 La tercera parte y la más importante de tu autoconcepto es tu autoestima. Es la base de tu personalidad. Es el "núcleo del reactor" de tu generador de tu energía emocional.
 
@@ -389,7 +389,7 @@ La mejor definicion es: cuánto te gustas (cuanto te quieres). Cuanto más te gu
 A lo largo de tu vida encontrarás que las personas con la mayor autoestima tienen las personalidades más positivas y son las más populares donde quiera que vayan. Parece haber una relación directa entre la autoestima, el éxito y la felicidad en cada área de la vida.
 ![alt text](image-6.png)
 
-#### Tiempo de reaccíon rápido
+### Tiempo de reaccíon rápido
 
 Así como te conviertes en lo que piensas, también te conviertes en lo que dices la mayor parte del tiempo. La mayoria de tus emociones está determinada por la forma en que hablas contigo a lo largo del día.
 
@@ -399,7 +399,7 @@ Las palabras más poderosas que puedes usar para desarrollar tu autoestima son: 
 
 Cada vez que dices: "¡Me gusto!", tu autoestima se incrementa a la par tu automimagen y tu personalidad entra en equilibrio, comienzas a evolucionar y a crecer de una manera positiva
 
-#### Toma el control de tu evolución como persona
+### Toma el control de tu evolución como persona
 
 No importa qué te haya paso en la primera infancia para disminuir tu autoestima o dañar tu autoimagen, como adulto puedes tomar el control completo de la evolución de tu propia personalidad
 
@@ -425,3 +425,47 @@ La gente de hoy puede vivir más tiempo gracias al avance de la medicina y tecno
 Los niños nacen optimistas, completos, intrépidos y deshinibidos, curiosos y deseosos ¿Alguna vez has visto un bebé negativo?
 
 ### Errores que cometen los padres
+
+Por parte de los padres los niños a temprana edad comienzan a experimentar críticas destructivas y falta de amor.
+
+La crítica destructiva es el mayor enemigo individual, la critica destructiva mata el alma pero deja al cuerpo caminando.
+
+Cuando los padres intentan controlar a sus hijos, dándoles amor y quitándoselo, siembran las semillas de la inseguridad profunda dentro de ellos. Esta inseguridad se manifiesta en una plétora de problemas emocionales y mentales, duda, anciedad, inadecuación y de no merecer nada bueno en la vida, hasta falta de motivación, busca la perfección, incapacida de enfrentar problemas o lidiar con conflictos de manera efectiva.
+
+![alt text](image-7.png)
+
+### Las dos emociones negativas principales
+
+Hay muchas emociones negativas, pero casi todas están arraigadas en dos principales: miedo al fracaso y miedo al rechazo.
+
+El miedo al fracaso surge cuando la persona ha sido criticada destructivamente, se manifiesta en la vida adulta como el temor a la perdida del dinero, la pérdida de la salud la pérdida de la seguridad y la perdida del amor de otras personas. No importa cuanto logren en sus carreras, les atormenta el miedo a que se lo quiten y tengan que volver a empezar sin nada.
+
+El miedo al rechazo se experimenta como un miedo a la crítica, la persona se vuelve hipersensible a los pensamientos, opiniones, palabras de otras personas, tienen temor a no ser del agrado de otros.
+
+Las personas con este miedo tienen temor a la verguenza o al ridiculo de cualquier tipo, especialmente en presencia de otros.
+
+![alt text](image-8.png)
+
+El miedo al rechazo es la causa raiz del miedo a hablar en público, por encima del temor a la muerte.
+
+
+Unas palabras de Christina
+
+> _Cuando te estás preparando para hablar en público y el pánico escénico comienza a aparecer, la clave es convencerte de que tu audiencia quiere que tengas exito. Ellos no están ahí para juzgarte; están ahí para aprender o escuchar._
+
+### Imagina que no tuvieras limitaciones
+
+¿Que papel juega el miedo en su vida y en sus decisiones?
+
+Primero preguntamos: "imagina que tuvieras todo el dinero que pudieras gastar por el resto de tu vida. ¿Qué empezarías a hacer o dejarías de hacer?".
+
+Esta pregunta te revela muchas cosas.
+
+hay muchas situaciones en tu vida que cambiarías drastica e inmediatamente si no tuvieras miedo a la pobreza.
+
+Las personas diseñan su vida para compensar sus miedos. Aceptan trabajos de nivel inferior al que son capaces a cambio de seguridad. Permanecen en relaciones infelices en lugar de arriesgarse a estar solas. Eligen amigos pasivos y no críticos para estár seguras de nunca ser criticadas, avergonzadas o rechazadas
+
+**Unas palabras de Christina**
+> _El miedo a no tener o no ser lo suficiente es uno de los obstáculos más comunes que impiden que las personas avancen, especialmente en el aspecto profesional. Asisti a un taller profesional, y una de las actividades fue identificar las cosas que nos impedian avanzar. El 90% de los asistentes necesitaba más capacitacion, más experiencia, más conocimiento. Antes de la actividad cada uno explicó su nivel de exito profesional. Fue sorprendente escuchar que incluso aquellos con los curriculums más impresionantes dudaban de sí mismos._
+
+### LA GRAN PREGUNTA
