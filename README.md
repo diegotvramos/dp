@@ -469,3 +469,36 @@ Las personas diseñan su vida para compensar sus miedos. Aceptan trabajos de niv
 > _El miedo a no tener o no ser lo suficiente es uno de los obstáculos más comunes que impiden que las personas avancen, especialmente en el aspecto profesional. Asisti a un taller profesional, y una de las actividades fue identificar las cosas que nos impedian avanzar. El 90% de los asistentes necesitaba más capacitacion, más experiencia, más conocimiento. Antes de la actividad cada uno explicó su nivel de exito profesional. Fue sorprendente escuchar que incluso aquellos con los curriculums más impresionantes dudaban de sí mismos._
 
 ### LA GRAN PREGUNTA
+
+la segunda pregunta es: "¿Qué gran cosa te atreverias a hacer si supieras que no puedes fallar?"
+
+Si tuvieras garantizado el exito en cualquier cosa, ya sea grande o pequeña, a largo o corto plazo, ¿qué objetivo tan grande, emocionantey desafiante te fijarías?
+
+Esta pregunta te ayuda a identificar los miedos que te están deteniendo. Si tuvieras garantizado el éxito probablemente te comprometerías con tu "deseo del corazón"
+
+### La jerarquia de necesidades.
+
+Abraham Maslow estudió a las personas felices, y desarrolló su famosa jerarquia de necesidades.
+
+Concluyó que cada persona tiene 5 necesidades básicas que deben ser satisfechas
+
+1. _supervivencia_ es la preservación de la vida.
+1. la _seguridad_ es cuando el individuo tiene suficiente comida, ropa, refugio y dinero para que ninguna de estas necesidades sea apremiante.
+1. La _pertenencia_ cada persona tiene un profundo deseo de ser parte de un grupo para ser reconocida y aceptada.
+
+
+### DEPENDIENDO DE LOS DEMÁS
+
+Es importante la necesidad de contacto humano y pertenencia para comprender como avanzar cuando te sientas estancado.
+
+Como bebés, a medida que nos hacemos adultos, transferimos nuestros apegos a nuestros pares u a otras personas importantes, y dependemos de esas relaciones para nuestra salud emocional e incluso para nuestra supervivencia.
+
+La razón por la cual  el miedo al rechazo es tan poderoso es que la idea de estar completamente solos se siente emocionalmente amenazante para la vida.
+
+Dependemos tanto de la acepación de los demás que reprimimos nuestras verdaderas necesidades para mantener a nuestros y compañeros cerca
+
+**Unas palabras de Christina**
+
+> Trabajé con un joven que habia descubierto que cuando tenia emociones fuertes, positivas o negativas, sus padres no respondian bien. Se alejaban de él. Pronto aprendió a reprimir sus sentimientos y sus reacciones para no perder la aprobación de sus padres. Cuando creció, se desconectó tanto de sus verdaderos sentimiento como resultado tenia baja autoestima y confianza. Le llevó mucho tiempo aprender que sus deseos y sus necesidades eran tan válidos como las de cualquier otra persona.
+
+### NECESIDADES DE DEFICIENCIA VS NECESIDADES DEL SER
