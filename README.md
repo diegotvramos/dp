@@ -497,8 +497,65 @@ La razón por la cual  el miedo al rechazo es tan poderoso es que la idea de est
 
 Dependemos tanto de la acepación de los demás que reprimimos nuestras verdaderas necesidades para mantener a nuestros y compañeros cerca
 
-**Unas palabras de Christina**
+**Unas palabras de Christina** 
 
 > Trabajé con un joven que habia descubierto que cuando tenia emociones fuertes, positivas o negativas, sus padres no respondian bien. Se alejaban de él. Pronto aprendió a reprimir sus sentimientos y sus reacciones para no perder la aprobación de sus padres. Cuando creció, se desconectó tanto de sus verdaderos sentimiento como resultado tenia baja autoestima y confianza. Le llevó mucho tiempo aprender que sus deseos y sus necesidades eran tan válidos como las de cualquier otra persona.
 
 ### NECESIDADES DE DEFICIENCIA VS NECESIDADES DEL SER
+
+los tres primero tipos de necesidades (supervivencia, seguridad, y pertenencia) se define como "necesidades de deficiencia". En ausencia, el individuo excluye todo lo demás. Pero una vez que se satisfacen, el individuo se mueve hacia la satisfacción  de la "necesidad del ser", la cuarta de las cuales es la _autoestima_.
+Casi todo lo que hacemos hoy en la vida es para lograr sentimientos de autoestima. Tu autoestima, cuánto te gustas a ti mismo, el el nucleo de tu personalidad y determina la calidad de tu vida emocional.
+
+En la jerarquia de Maslow, una vez satisfecha la necesidad de autoestima, el individuo se mueve al nivel más alto: la satisfacción de la _autorrealización_. Segun Abraham Maslow consiste en "convertirse en todo aquello que uno es capaz de llegar a ser".
+
+### NECESIDADES MAYORES
+
+Más tarde, Maslow llegó a la conclusión de que hay dos necesidades aún más elevadas que surgen naturalmente despues de satisfacer las necesidades de supervivencia, seguridad, pertenencia, autoestima, y autorrealización. Estas son las necesidades de _verdad_ y _belleza_ que se resume en: filosofia, literatura, poesia en busca de la verdad y joyas, casas hermosas todo en busca de la belleza.
+
+### La Persona Completamente Funcional
+
+El psiquiatra  William Glasser definió a una persona que ha alcanzado los niveles más altos de desarrollo mental y emocional como _completamente funcional_. Ésta es una persona con alto autoestima y satisfacción individual, es relajada. La caracteristica más notable es que es completamente "no defensiva".
+
+La persona completamente funcional no siente que tiene que justificarse o explicarse ante nadie por nada. Vive su vida de acuerdo con sus propios pensamientos, sentimientos, valores e ideales. Es cálida, amable, feliz, encantadora y posee una "personalidad madura y totalmente integrada". Alcanzar este nivel es uno de nuestros objetivos más importantes.
+
+### ¿QUÉ NOS DETIENE?
+
+la respuesta es: Las emocines negativas.
+
+Debido a la critica destructiva y a la falta de amor de niños. A medida que se convierten en adultos, estas emociones pueden volverse más y más intensas.
+
+Las principales emociones negativas que experimentan las personas son el miedo , la duda, la preucupación, la envidia, los celos, el resentimiento, la indiferencia  y los sentimientos de inadecuación especialmente en comparación con los demás.
+
+El miedo, la duda  y la preucupación surgen cuando el niño es continuamente criticado cada vez que comete un error de cualquier tipo. 
+
+Incluso si logran algo que vale la pena nunca es suficiente para sus padres
+
+### CONVERTIRSE EN UNA PERSONA COMPLETAMENTE FUNCIONAL
+
+Tu objetivo es convertirte en una persona completamente funcional, pero la mayoria de nosotros no lo ha logrado. La mayoria de las personas mira a los demás para validad las decisiones que toma. A menudo cuando alguien más tiene una opinión diferente o toma decisiones contraras a la suya, las personas indecisas pueden sentirse inseguras  o amenazadas. Preguntan: "¿Qué opción es la mejor?"
+
+**Unas palabras de Christina**
+
+> Jon es un hombre de mediana edad, lucha por ser decisivo y proactivo. A menudo busca la opinion de su madre y su hermano. Despues de trabajar meses con Jon me di cuenta que cada vez que buscaba el consejo de su madre. Si ella estaba de acuerdo y hacia lo que ella decia su madre era solidaria y cariñosa. Sin enbargo si hacia algo que ella no aprobara  dejaba de hablar con él durante semanas. Se sentia incapaz de avanzar.
+
+> He trabajado con varios casos similares. Y lo que los detiene y los mantiene estancados el el miedo de que si hacen algo nuevo o diferente podrian perder el amor o la aprobación de una persona importante en su vida. Como resultado, se quedan estancados en el mismo lugar durante años.
+
+### La Envidia y el Resentimiento
+
+La envidia y el resentimiento son emociones negativas que surgen de profundos sentimientos de inadecuación e inferioridad.
+
+La envidia es una de las peores emociones negativas. Es el único de los "siete pecados capitales" que no hay recompensa
+
+La envidia no tiene ningun efecto sobre el objetivo y no le da ningún beneficio o placer a la persona obsesionada con la envidia.
+
+La envidia se aprende de uno o ambos padres continuamente afirma que las personas exitosas son malas y deshonestas.
+
+Lo desafortunado de la envidia es que nunca puede ser satisfecha. En todo caso, crece y empeora con el tiempo. Y causa mucho más daño a la persona que experimenta la emoción que a la persona o al grupo al que va dirigido.
+
+![alt text](image-10.png)
+
+### LA ADMIRACIÓN ES POSITIVA
+
+
+
+
